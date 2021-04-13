@@ -1,0 +1,4 @@
+- Lucas Yule 
+- currently learning Python, SQL and Java 
+- I pretty much do just stupid projects and school work 
+- Hit me up at Lucasyule06@gmail.com 
